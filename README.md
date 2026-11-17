@@ -1,1 +1,1 @@
-# Decision-Quest-bitacoras
+hoy es el ultimo día del proyecto, tengo pocas bitácoras porque anteriormente las hice en una hoja en Word, desde la semana pasa que fue la entrega del proyecto no pude agregar mas bitácoras desde mi casa 
